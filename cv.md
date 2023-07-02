@@ -1,7 +1,6 @@
-# **Gainanova Elina**
---- 
+## **Gainanova Elina**  
+
 GRAPHIC DESIGNER
-***
 
  **contact information**
 
